@@ -6,4 +6,5 @@ Pakistan is not a democracy
 
 Bhutan too is not a democracy
 
-Mumbai not much
+Mumbai not ready
+
